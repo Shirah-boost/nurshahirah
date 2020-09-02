@@ -1,2 +1,0 @@
-# nurshahirah
-Irdina sumayyah
